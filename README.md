@@ -7,3 +7,5 @@ Verwendete Bilder unterliegen den entsprechenden Lizenzen.
 Ticket ITCrowd : DIN A8 (5,2 x 7,4 cm)
 
 Warning Disassembly only by the professionals: 6,8 x 2,1 cm (7,4 x 4,0 cm inkl. Beschnitt)
+
+Sprachgesteuert Papier Bitte: Aufkleber rund, Durchmesser 7,0 cm
